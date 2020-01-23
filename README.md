@@ -1,1 +1,0 @@
-# Getara-mayo-JCP-Webpage
